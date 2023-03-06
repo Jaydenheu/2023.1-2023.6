@@ -1,6 +1,6 @@
 ---
-title: 2023年1月7日星期六
-updated: 2023-02-16 04:19:34Z
+title: reading&writing
+updated: 2023-03-06 10:45:38Z
 created: 2023-02-16 04:18:34Z
 latitude: 22.81700200
 longitude: 108.36654300
@@ -65,7 +65,7 @@ Doing exercise regularly will provide an excellent opportunity for students to h
 29. Disorder    disorganized    
 30. Stimulus   n. 刺激 
 31. Stimulate   v. 激发
-32. Comment    评论    
+32. Comment    评论  
 33. Common   常见的，共同的 
 34. Regard     看待   best regards 
 35. Be regarded as = be considered as = be thought of as 被看作是
@@ -451,4 +451,161 @@ Ventilation
 1. 背单词；
 2. 剑桥C14-2-3，计时做完；
 3. 大作文一篇；
+
+
+## 2023年2月18日星期六
+
+1. Poster    海报 
+2. Advertising    广告 
+3. impulse buying    冲动消费 
+Plus 
+4. Buy some unnecessary products  买一些不必要的产品 
+5. Dominate      占据主导的 
+Home        dome   穹顶
+Domestic   家里的，国内的    GDP
+Domesticate    驯化
+Domain        地盘，领域 
+6. Leisure  休闲
+7. The social distance between family members is increasing. 
+8. is an integral part of....   是...的一个整体的一部分 
+9. Be an indispensable part of....   不可或缺的....
+10. Have a detrimental effect on...   对...有一个致命伤害...
+11. Despite    尽管 
+12. Deny    否认 
+13. Multimedia  多媒体 
+14. Multiple    多个的 
+15. Multitasking  I am not a - person, which means I can only focus on ..
+16. Billion    十亿   
+17. Million   百万       a hundred million   一亿 
+3, 333, 333, 333
+18. Meet one’s need  满足某人的需求 
+19. Iron-man    钢铁侠   
+20. iron   钢铁 
+21. ironic   反讽，讽刺 
+22. The number of business that fails has also steadily/slightly increased.  
+23. The number of people who have lost their jobs has
+24. I coded an application three years ago.  
+25. I have coded an application.    
+26. Approach    v. 达到，靠近
+n. 方法
+27. be obsessed with...  沉迷于...，热衷于 
+28. assumption    预设  
+29. assume      v. 预设  
+30. increase productivity    增加生产率
+31. Deadline is the primary productivity. 
+32. innovate  创新 
+
+
+
+## 课后建议：
+1. 14-2-3做完；计时做完；
+2. 大作文一篇：
+
+
+## 2023年3月1日星期三
+
+1. Concept     概念 
+2. Theory       理论 
+3. investigator     调查者
+4. Give rise to   导致 
+5. Suspect   怀疑  
+6. Suspicious   怀疑的 
+7. Existing     现存的 
+8. Exist  存在 
+9. Contribution   贡献 
+10. Towards    朝向
+11. Clarity    清晰度
+12. Reference   参考，参照，指代 
+13. Lack    缺乏，欠缺 
+14. Unconscious   无意识的，下意识的 
+15. Certain     确定的 
+16. Certainly   当然地
+17. Prove    证明 
+18. Disappointing   失望的 
+19. Disappointment    失望
+20. Expectations      期待，期望 
+21. Meet one's needs 满足某人的需求 
+22. Meet one's expectations   满足某人的期待 
+23. Beyond one's expectations   超越了某人的期待 
+24. Gain/get/obtain/acquire knowledge  获取知识 
+25. Universal      普世的，全世界的 
+26. Universe   宇宙
+27. University   
+28. Participate in  参加 
+29. Take part in 参加 
+30. Prefer   更喜欢 
+31. Prefer a to b   
+32. Preference  偏好
+33. Preferential      偏爱的，偏好的 
+34. At the expense of    以牺牲....为代价
+35. Variation   变化 
+36. Potential     潜力 
+37. Compound    化合物 
+38. Extract   提取
+39. Vary    变化 
+40. Various  不同的 
+41. Level    水平
+42. Tiny     微笑的 
+43. Proportion    比例
+44. Percentage   百分比 
+45. investigate     调查    
+46. Promise    保证
+47. Promising     有前景的 
+48. Colleague   同事
+49. College   大学，学院 
+50. Effort   努力
+
+
+
+
+
+## 2023年3月3日星期五
+
+1. Attempt       n. 尝试     try 
+2. Domesticate   v. 驯化，驯养
+3. Reference       n. 参考，参照，指代，提及
+4. Resist         v. 抵抗
+5. infection       n. 感染
+6. Arise from      出现
+7. Certainly      adv. 当然地
+8. Certain        adj. 当然；某一种,特定的 
+A certain student is waiting for you outside. 
+9. Gain/obtain       
+10. Plant        n. 植物;    v. 种植；    n. 站
+Power plant    能源站（发电站）
+
+11. Plan        v.计划
+12. A number of   大量的 
+13. The number of..   ....的数量 
+The number of students involved in those activities is high. 
+
+14. Cultivate   v. 种植，培育
+Cultivate a good habit   培养一个好的习惯
+15. Culture     n. 文化 
+16. Recent     adj. 最近的，现在的 
+17. Research   研究
+18. Resource  资源
+19. Flavour    flavor   口味，风味 
+20. Genetically   基因上地 
+Gene     基因
+21. Adapt to    适应...
+22. Accept      接受
+23. Advisable    建议的 
+24. Person    人 
+25. Present    现在的，礼物，呈现 
+26. Effort    n. 努力
+27. Desirable    adj. 想要的 
+Desire to do sth  渴望去做某事 
+undesirable    不想要的，不渴望的
+28. Trait      n. 特征，性状
+29. Modify     v. 修饰，改变
+30. Be affected by...    被...所影响
+
+
+
+## 2023年3月3日星期五
+1. 双图的流程图作文一篇；
+2. 17-2-1阅读计时做完；
+3. 翻译14-26题的句子；
+
 
